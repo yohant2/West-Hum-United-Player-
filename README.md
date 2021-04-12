@@ -1,4 +1,4 @@
-# **_West Hum United-Player Jesse Lingard_** 
+# **_West Hum United Player Jesse Lingard_** 
 
 Jesse Lingard is 28 years old former Manchester United player. With the Covid-19 existence, his performance decreased and he did not play for his team Manchester United for all most year. His Mother dead becuase of Covid-19 and he took the responsibility of the house. On the other his girl friend left him. The responsibility outside football and online criticism became a big distraction for him to focus in sport. He moved to West Hum United after his position was taken. On West Hum United Club, he showed all his classic performance. He score 8 goals in 9 matches. He was chosen by his notional team England for the World Cup 2021-2022. His confidence seems to be high and proved to the world that he is one of the best foot ball player. 
 
